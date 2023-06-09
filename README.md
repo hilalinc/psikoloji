@@ -1,0 +1,2 @@
+# psikoloji
+doktor
